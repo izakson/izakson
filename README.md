@@ -1,4 +1,5 @@
-- 👋 Hi, I’m @izakson
+- 👋 Hi, my name's Sofya, I’m middle+ data analyst
+- 👩‍💻 Currently looking for job!
 - 📫 email sofya.izakson@gmail.com
 - 📱 telegram: @izakson_s
 - 📱 whatsapp: +7(901)5650454
